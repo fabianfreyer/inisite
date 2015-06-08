@@ -17,7 +17,7 @@ Von Montag dem 15.06.2015 bis zum Donnerstag den 19.06.2015 sind [StuPa](/gremie
 
 ### Kompetenz-Kompetenz
 
-Wir fordern mehr Kompetenz auf allen Ebenen und die Kompetenz Kompetenz bei kompetenten Kompetenten zu kompensieren!
+Wir fordern mehr Kompetenz auf allen Ebenen und die Kompetenz Kompetenzen bei kompetenten Kompetenten zu kompensieren!
 
 ### Stressfrei Studieren
 
